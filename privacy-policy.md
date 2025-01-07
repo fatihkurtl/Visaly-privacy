@@ -37,7 +37,7 @@ We may update our Privacy Policy from time to time. Any changes will be posted o
 ## Contact Us
 If you have any questions about this Privacy Policy, please contact us:
 - Email: info@fktyazilim.com
-- Website: https://www.fktyazilim.com
+- Website: https://fktyazilim.com
 
 ## Consent
 By using our App, you agree to this Privacy Policy. 
